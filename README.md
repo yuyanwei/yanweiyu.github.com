@@ -1,2 +1,0 @@
-# Yanwei Yu
-Homepage
